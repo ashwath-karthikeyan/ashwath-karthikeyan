@@ -1,2 +1,2 @@
 ### Welcome
-Feel free to look around.
+Here lies the collection of projects I've worked on, some completed, some not so much. Some are documented, others, not really. I hope you find what you're looking for, if not, please connect with me.
